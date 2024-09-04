@@ -1,4 +1,4 @@
-[я в 16 лет когда...](1d3a3e38807eff1bd815836dc6dd0e9a.png.webp)
+![я в 16 лет когда...](1d3a3e38807eff1bd815836dc6dd0e9a.png.webp)
 
 [my discord server, 300 members](https://discord.gg/7radMBMnNZ)
 
