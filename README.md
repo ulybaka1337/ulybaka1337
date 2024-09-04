@@ -1,4 +1,6 @@
-## Hi there 👋
+[я в 16 лет когда...](1d3a3e38807eff1bd815836dc6dd0e9a.png.webp)
+
+[my discord server, 300 members](https://discord.gg/7radMBMnNZ)
 
 <!--
 **ulybaka1337/ulybaka1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
